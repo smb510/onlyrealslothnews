@@ -1,2 +1,2 @@
-## 15 days left!
-![try to remain calm](https://images-na.ssl-images-amazon.com/images/I/91QjiyLAI%2BL.jpg)
+## two weeks left!!
+![try to remain calm](https://www.azuremagazine.com/wp-content/uploads/2013/02/2weeks1.gif)
