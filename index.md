@@ -1,8 +1,9 @@
 # Only Real Sloth News
 
-## Your place for all the hot sloth goss.
+## Finally
 
-![sup](https://kids.nationalgeographic.com/content/dam/kids/photos/animals/Mammals/Q-Z/photoak-threetoedsloth.ngsversion.1465391618565.adapt.945.1.png)
-This intrepid reporter said that a sloth was beaten up by some russian sloths and now his eyes are bleeding. His name is winfred. It's very sad for him.
+![counter](https://static1.squarespace.com/static/59c2ad61f43b550d409abdb4/t/59e0114329f18718b20f5f9b/1538699474849/)
+![commentary](https://i.imgur.com/LnWvzn1.jpg)
+The countdown finally begins! Whistler is forecast to get somewhere around 6 feet of snow in the next 10 days, making up for a dry early season.
 
-And that's the hot sloth goss.
+
